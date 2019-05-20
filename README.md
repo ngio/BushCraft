@@ -5,9 +5,10 @@ BushCraft
 
 현재 서바이벌 리스트 카페 파란띠  https://cafe.naver.com/survivalist 
 
+Bushcraft trip - natural shelter, drying meat, no sleeping bag, all night fire, homemade axe etc.
+https://www.youtube.com/watch?v=wtiorsjuc80
 
-
-
+ 
 
 
 
