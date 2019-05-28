@@ -12,7 +12,8 @@ https://www.youtube.com/watch?v=wtiorsjuc80
 #일상용품 #발명품 #전쟁 전쟁이 만들어낸 일상용품 7가지
 https://www.youtube.com/embed/2szq80_PDMM
 
-
+How to punch and drift an axe eye by hand. Axe making - blacksmithing
+https://youtu.be/XBcU3T_Ws_8
 
 
 ...
