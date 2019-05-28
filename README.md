@@ -9,6 +9,9 @@ Bushcraft trip - natural shelter, drying meat, no sleeping bag, all night fire, 
 https://www.youtube.com/watch?v=wtiorsjuc80
 
  
+#일상용품 #발명품 #전쟁 전쟁이 만들어낸 일상용품 7가지
+https://www.youtube.com/embed/2szq80_PDMM
+
 
 
 
